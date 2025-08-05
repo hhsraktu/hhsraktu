@@ -3,8 +3,7 @@
 <p align="center">
 
 <samp>
-  "I have the true feeling of myself only when I am unbearably unhappy "<br/>
-  Franz Kafka
+  Ultimate reality is the negation of all beliefs
 </samp>
 
 </p>
