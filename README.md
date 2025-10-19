@@ -3,7 +3,7 @@
 <p align="center">
 
 <samp>
-  Ultimate reality is the negation of all beliefs
+  Exploring possibilities in search of Freedom.
 </samp>
 
 </p>
